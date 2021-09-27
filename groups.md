@@ -11,8 +11,8 @@ Adicionem suas duplas:
 * Henrique Marcuzzo
 
 ### Grupo 3
-* 
-*
+* Brendow Paolillo Castro Isidoro
+* Isabela de Almeida Gantzel
 
 ### Grupo 4
 * 
